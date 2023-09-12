@@ -1,4 +1,4 @@
-Certainly, here's the report for your project written in English:
+
 
 **Project Report**
 
